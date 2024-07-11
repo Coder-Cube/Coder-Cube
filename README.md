@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Coder-Cube
+- 👀 I’m interested in Coding Random Games For Fun
+- 🌱 I’m currently learning Computer Science
+- 📫 Message Me On Discord - @Coder_Cube
+- 😄 Pronouns: He/Him
